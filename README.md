@@ -1,2 +1,2 @@
 # Campuso
-https://drive.google.com/file/d/1WzEfBhsYSL06V19zrJIsVYDTMA-qlDvr/view?usp=share_link
+https://drive.google.com/drive/folders/1DTG4xRthL3KT_MxY5e7jmK3_ROTFG50B?usp=drive_link
